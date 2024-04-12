@@ -1,0 +1,1 @@
+# This is the Repository used to host the collaborative Obsidian Vault of our DnD Campaign
