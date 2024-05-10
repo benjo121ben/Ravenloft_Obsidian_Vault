@@ -5,3 +5,4 @@ Becomes a Death Knight, has the ability to control [[The Mist]].
 Falls in love with a [[Dragon Knight Lady]] and stalks her.
 Still trapped within the land.
 Was sitting in undeath inside his throne room, rewatching his own memories on mirrors.
+After we felled him, a [[Black Dragon]] took his soul "I am not done with you yet."
